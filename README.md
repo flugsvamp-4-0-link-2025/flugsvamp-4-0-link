@@ -22,4 +22,6 @@ Remember, participating in such markets entails considerable risks, including le
 
 <a href="http://ikhpggtz3iv6gfebiqagmb4zto2e6xepocqjii3yvkrp27jwzlds2lqd.onion"><img src="/vectors/media.webp" alt="image" style="max-width: 100%;"></a>  <a href="http://ikhpggtz3iv6gfebiqagmb4zto2e6xepocqjii3yvkrp27jwzlds2lqd.onion"><img src="/vectors/theme.webp" alt="image" style="max-width: 100%;"></a>
 
-Update:  18 July
+
+
+Update:  21 July 2025
