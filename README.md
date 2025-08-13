@@ -28,4 +28,6 @@ Remember, participating in such markets entails considerable risks, including le
 
 
 
-Update:  04 August 2025
+
+
+Update:  Wednesday 13 August 2025
