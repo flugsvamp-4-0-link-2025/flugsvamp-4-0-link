@@ -34,4 +34,6 @@ Remember, participating in such markets entails considerable risks, including le
 
 
 
-Update:  23 August Fixed broken url
+
+
+Update:  12 September
