@@ -38,4 +38,6 @@ Remember, participating in such markets entails considerable risks, including le
 
 
 
-Update:  12.09.2025
+
+
+Update:  Thursday 18 September 2025 url is back up and live
